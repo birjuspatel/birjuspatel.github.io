@@ -1,1 +1,0 @@
-# birjuspatel.github.io
